@@ -13,3 +13,17 @@ Hi there! My name is Charles Duffy Dhenain, I am a student in the Immersive Soft
 This is my portfolio website, here you'll be able to see my current projects
 
 
+
+About Me
+
+Learn More
+
+What I learned from others
+
+Professional and Industry
+
+Beyond the classroom
+
+How I Developed This Year
+
+Where Am I Going Next
